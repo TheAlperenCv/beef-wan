@@ -1,0 +1,2 @@
+# beef-wan
+#EKSİKLERİ DÜZELT
